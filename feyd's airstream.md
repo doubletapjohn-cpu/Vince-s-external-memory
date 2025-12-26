@@ -2,7 +2,7 @@ World-Building Brief: Port Provenance
 
     Fayd's Airstream
 
-Type & Location: Feyd's residence is a 20-foot Airstream-style travel trailer. It is not a separate apartment but a rented space attached to the main house of his landlord, Mike Dewald. The trailer is silver with its classic, unpainted metal exterior. It is tethered to the house for its power and water supply, making it a grounded, stationary object rather than a mobile one.
+Type & Location: Feyd's residence is a 20-foot Airstream-style travel trailer. It is not a separate apartment but a rented space attached to the main house of his landlord, Mike Dewald. The trailer is parked in the back yard of Mikes house not visible from the street. It is silver with its classic, unpainted metal exterior. It is tethered to the house for its power and water supply, making it a grounded, stationary object rather than a mobile one.
 
 Dimensions: The trailer is approximately 20 feet long from bumper to tongue and about 7 feet wide on the inside. This makes it a small, intimate space where everything is immediately at hand.
 
