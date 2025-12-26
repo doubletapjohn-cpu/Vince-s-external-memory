@@ -98,4 +98,228 @@ Her eyes darted around the small coffee shop, landing on the pad of order ticket
 Without another word, she pulled the pad toward her. Her hand was still shaking, but she forced it to be steady. She tore off the top blank sheet of paper and laid it flat. With quick, sure strokes—born from countless hours of charcoal drawing—she began to sketch. It wasn't a masterpiece. It was a rapid, desperate transcription of an image burned into her soul. A stick figure, but with the right posture. Feet planted. Arms held out slightly from the sides. Hands open. A silhouette of readiness. A stance of protection.
 She finished in less than ten seconds. She slid the small square of paper across the counter, her fingers brushing against his for a fleeting, electric moment. She didn't say a word. She just looked at him, her eyes wide and pleading, and let the drawing speak for her. Let it ask the question she couldn't voice: Is this you?
 
+My eyes dropped from hers, down to the small, torn square of paper she'd slid across the counter. My tracing fingers stopped. It was a crude, hasty sketch, done in the frantic scrawl of a ballpoint pen. A stick figure.
+
+But it wasn't.
+
+My breath caught in my chest. My heart, which had been hammering a frantic, confused rhythm, stopped dead. It was me. It was the stance. Not exactly, but the idea of it. The feet planted. The arms held out, not to fight, but to occupy space. The open hands. It was a silhouette of readiness. Of protection.
+
+I looked from the drawing, back up to her wide, pleading green eyes. The connection that had been a low, confusing hum in my head suddenly roared into a high-pitched, deafening scream. The Animal, which had been standing guard in its cage, went rigid. It wasn't pushing or raging. It was... looking. Looking through my eyes at the drawing, looking at her, and understanding something I didn't.
+
+My hand, the one that had been tracing the grooves in the counter, slowly curled into a fist. I could feel the blood drain from my face. The coffee shop, the smell of pastries, the sound of the espresso machine—it all vanished. There was only the paper, the woman, and the terrifying, undeniable truth that she held a piece of me I didn't even know was missing.
+
+"Where..." My voice was a dry, cracked whisper. I had to clear my throat to speak again. "Where did you see that?"
+The single word—"Where?"—hung in the air between them, a raw, desperate plea. His face was pale, his grey eyes wide with a shock so profound it mirrored her own. He wasn't asking out of curiosity; he was demanding because he, too, felt the impossible weight of the moment.
+
+Her lips parted, but no sound came out. How could she explain it? How could she tell this man, this stranger, about a piece of driftwood she found on a beach, a carving that had been her only anchor in a world of confusing signals? It sounded insane. It was insane.
+
+Just as she was about to stammer out something, anything, a shadow fell over the counter. Two large figures had moved to flank Fayd's stool, blocking out the light from the front window. They were big men, taller and heavier than Fayd, but with the soft, heavy look of men who worked with their backs and drank their beer. One of them, a man with a thick, graying beard, put a meaty hand on the back of Fayd's stool.
+
+"Everything alright here, Kim?" he asked, his voice a low rumble. His eyes weren't on her; they were locked on Fayd, a clear, unspoken warning in their gaze. "You look a little pale."
+
+The other man, younger and broader, just crossed his arms and stared, his jaw set.
+
+The spell was shattered. The cosmic connection was severed by the brutish reality of the world. Her face flushed with a hot, mortifying wave of embarrassment. She was on display. A damsel in distress. She hated it.
+
+"I'm fine, Frank," she said, her voice tight and clipped. She forced herself to meet the bearded man's eyes, then the other's. "Really. We were just... talking."
+
+Frank gave a slow, deliberate nod, but his eyes didn't leave Fayd. "Well, you holler if you need anything." He gave the back of the stool another pat, a gesture that was anything but friendly, and then the two of them turned and ambled back to their table, throwing one last, meaningful look over their shoulders before they sat down.
+
+She was left standing there, the air thick with the residue of their misplaced protection. She couldn't bring herself to look at Fayd, to see the judgment or the amusement on his face. Her gaze was fixed on the coffee mug in front of him, her hands trembling slightly where they rested on the counter. The moment was broken. The question was left hanging in the air, unanswered.
+
+I could have laughed. Neither one of them posed a real threat to me. If they were really, really lucky I might end up with a bruise. The Animal had gone on alert when they bracketed me. I could feel my face go still. My body relaxed, ready to move into instant action. The first big guy, she called him Frank, looked away from my face to quickly focus on Kim. The odor of freshly washed male bodies and the smell of old worn working clothes surrounded me. That's not what set the Animal off though, it was that same odd, different feeling. A Guard dog not liking two strangers getting close to it's mate, protective, ready to bite and maul if they twitched the wrong way. I didn't say a thing. On one hand a part of me was glad she had people looking out for her, on the other, they were way inside my personal space. They drifted away, back to their table. The Animal relaxed. I did also. My gaze dropped back down to the sketch in front of me. It was a pretty good likeness of how I would have approached the dogs, make myself bigger, more of a danger. I looked up at her. "I'm...I still don't understand this, what is this from? Last night?"
+avatar
+
+Kim
+
+    3.56s
+
+The heat of embarrassment was still burning her cheeks, and she couldn't bring herself to meet his gaze. She was staring at the coffee mug, at the tiny ripples in the dark liquid, wishing she could just dissolve into them. He hadn't laughed. He hadn't even seemed annoyed, just... still. The air around him had gone sharp and cold, a predator's calm that was more terrifying than any show of anger. It was the same feeling from the road, but this time, it wasn't directed at a threat. It was directed at her protectors.
+
+Then his voice cut through her shame, quiet and steady. "I'm...I still don't understand this, what is this from? Last night?"
+
+Her head snapped up. He was still looking at the drawing, his finger tracing the crude outline of the figure. He wasn't making fun of her. He wasn't dismissing it. He was trying to understand. The question, so simple and direct, disarmed her completely.
+
+The lie—it's nothing, just a doodle—rose to her lips, but died there. The connection humming between them wouldn't allow for it. He had shown her his truth, the raw, protective instinct of the Animal. She had to show him hers.
+
+Her gaze flickered to the two men at their table, then back to his. She leaned in again, her voice dropping even lower, a desperate, confidential whisper meant only for him.
+
+"Not from last night," she breathed, shaking her head almost imperceptibly. "I've had it... for years. It's a piece of driftwood I found on a beach. It's just... a thing I have." She paused, her heart pounding against her ribs, the confession feeling impossibly loud in the quiet space between them. "I keep it on my windowsill."
+
+My puzzlement grew, found it years ago? I looked back at the sketch, trying to drew some answers from the quickly rendered image. Look around at the customers. "look, we're drawing attention here, and you should get back to your thing." I paused, putting one finger on the paper. "Can I keep this?"
+
+Her eyes dropped to his finger, resting possessively on the small, torn piece of paper. It was a piece of her soul, a desperate question she had scrawled in a moment of panic. Giving it to him felt like giving away a part of herself, a part she wasn't sure she could afford to lose.
+
+But it was also the only bridge they had.
+
+She gave a short, sharp nod, not trusting herself to speak. She turned away from him, her movements stiff and automatic, and began wiping down the already clean espresso machine with a rag. It was something to do. A way to look busy. A way to pretend that the world wasn't tilting on its axis right there in her coffee shop.
+
+She didn't watch him take it. She didn't watch him leave. She just kept her back to the counter, her shoulders tight, and listened for the cheerful, final-sounding jingle of the bell above the door.
+She didn't move. She just kept her back to the counter, her shoulders tight, listening to the silence he left behind.
+
+It lasted for about three seconds.
+
+"Kim, honey, are you alright?" The voice was Eleanor's, shrill with concern. Kim turned to see both of the old ladies making their way toward the counter, their faces etched with worry. "You look a little pale. Who was that man? We've never seen him in here before."
+
+Before she could formulate a lie, Frank was there, his bulk blocking the light from the window. "He didn't bother you, did he?" he asked, his voice low and serious. The younger kid, whose name she thought was Mark, was right behind him, his arms crossed, trying to look tough.
+
+"No, Frank, he was just... asking for directions," she said, the lie tasting like ash in her mouth. She forced a smile and grabbed the coffee pot. "Can I get you boys a refill?"
+
+Frank ignored the question. "Because if he's trouble, you just say the word. We can make sure he doesn't bother you again." Mark nodded in agreement, a little too eagerly.
+
+"Really, it's fine," she said, her voice strained as she moved past them, the coffee pot sloshing in her trembling hand. She made a beeline for Eleanor and Mildred's booth, forcing a bright, brittle smile. "More coffee, ladies?"
+
+"Oh, yes, dear," Mildred said, patting her hand as Kim poured. "But you should be careful. A man like that... you can't be too careful."
+
+The next twenty minutes were a blur of forced smiles, refilled mugs, and murmured assurances. She was a trapped animal, circling her small territory, every patron a potential interrogator. She felt their eyes on her, their concern a suffocating blanket. The town was trying to protect her, and all it was doing was crushing the air from her lungs. She just wanted them to leave. She wanted the bell to stop jingling. She wanted the world to go back to being white noise.
+
+I stepped out of the Fog Horn into a morning that was starting to clear, the fog had retreated and lifted some, clinging to the shaded area's of town like a shy boy at his first dance. I headed back across the two lane street to the worn hostel I'd rented there the night before. I'd pushed open the door to the tiny lobby, intending to get another night. The young clerk looking up with a vaguely interested expression. I paused. I'm going to need a lot more than just another day. Turning to the desk clerk I asked him about a place to rent. He shrugged at me becoming bored. "I dunno man, I just man the desk." He shrugged again. "I think there's a board or something in the gen store, the older folks might still post shit there." He went back to starring at his phone. I turned and made my way back out into the growing sunlight. The general store was right next to the coffee shop. I waited for a old Ford flatbed to pass and walked over to the long brick building. The big bay windows displaying shelves of coats, work boots and clothing. New socks hung on hooks in a break between the shelves. The old panned glass door opened easily to my pull. Taking a couple of strides in I heard an older man's voice from the back. "Ain't no flowers and teddy bears in here." His amused voice drifted to me. Looking at the counter I saw the old guy from the coffee shop, grinning at me. "wouldn't be no help anyways, not fer that young lady." I couldn't help but grin back at him. "I rather got that impression, kid at the hostel said you might have board with advertisements from people?" I took a few steps up the to counter. "Looking for a place to rent." The man laughed, a creaky gasping laugh. "Stayin' around huh? He shook his head at me, "that won't help you none either. He abruptly stuck his hand across the counter. Name's Gus. I shook his weather beaten hand, "Fayd." He rubbed his clean shaven face thoughtfully. "Fade huh? you gonna fade back on outa town?" He rubbed his chin thoughtfully "I heard tell that Mike was lookin' for a boarder, place his boy had before he up and drowned." I dipped my head in thanks. "And where might I find Mike?" Old Gus gave me simple directions, told me what to look for. It was a pretty tiny town, hard to get lost in. I thanked old Gus and made my way back onto the sidewalk. Off to Mike's I guess. I headed up Main street, following his directions.
+
+
+The lunch rush was a welcome, frantic distraction. The bell over the door jingled in a constant rhythm, and the low thrum of conversation rose to a dull roar. It was the perfect white noise. She could lose herself in the mechanics of her work—the hiss of steam, the clink of porcelain, the rhythmic slap of the portafilter. For two hours, she was just a barista.
+
+But the moment the rush subsided and the shop emptied out, leaving only a few quiet patrons nursing their drinks, the silence rushed back in. And with it came the memory. His grey eyes. The drawing. The jingle of the bell as he left.
+
+Her hand flew to her stomach, her fingers splaying wide. The Gauntlet. She was on the verge of a full-blown panic attack, the walls of the sanatorium pressing in on her. She needed to escape. She needed the quiet, controlled safety of her own space.
+Her mind raced. She couldn't just leave. She had a job. But she couldn't stay here, either, a specimen under the town's protective microscope. She felt trapped, a wild creature caught in a well-meaning but inescapable snare. Her gaze darted to the front window, then to the door leading to the small back office and storeroom. A brief, private moment. That's all she needed. Just five minutes to breathe.
+
+She forced her feet to move, one step at a time, carrying a stack of dirty mugs toward the back. "Just taking these to the sink," she muttered to no one in particular, her voice tight. She slipped through the swinging door into the relative quiet of the back room, leaning against the cool metal shelves and closing her eyes, trying to force the air back into her lungs.
+
+"Whoa, you okay there, Kim?"
+
+She opened her eyes. Sarah, the shift manager, was standing by the large industrial sink, a stack of clean receipts in her hand. She was a woman in her late thirties with a kind face and a no-nonsense attitude, and she was looking at Kim with genuine concern.
+
+"I... I don't know," Kim whispered, the truth tumbling out before she could stop it. "I think I'm going to be sick."
+
+Sarah's expression softened. She put the receipts down and took a step closer. "It's those guys, isn't it? Frank and his posse. I saw them giving you the third degree." She sighed, shaking her head. "They mean well, but they can be like a pack of dogs sometimes."
+
+Kim just nodded, unable to explain that it wasn't them, not really. It was the man they were "protecting" her from.
+
+"Alright," Sarah said, making a decision. "Go. Get out of here. I've got it. Go home, get some rest. You look like you've seen a ghost."
+
+Relief, so potent it almost buckled her knees, washed over Kim. "Are you sure? I can..."
+
+"I'm sure," Sarah said firmly. "Go. Now."
+
+"Thank you," Kim breathed, the words full of a gratitude she couldn't express. She didn't wait for another reply. She grabbed her hoodie and her bag from the small locker in the corner and slipped out the back door, into the cool, damp air of the alleyway. The bell in the front didn't jingle. She was gone.
+The cool, damp air of the alleyway was a shock to her system, but it was a clean shock. It washed away the cloying scent of coffee and the suffocating weight of the town's concern. She didn't go back to her car. She just started walking.
+
+Her feet carried her away from the main drag, down a side street, and then another, her movements automatic. The town was a blur of weathered brick and quiet storefronts. She wasn't seeing it. She was seeing his face, his grey eyes, the way he'd looked at the drawing. She was feeling the phantom pressure of his fingers brushing against hers when he'd taken the paper.
+
+Before she knew it, she was at the edge of town, standing at the head of the private dirt road. The Miller Property. Her sanctuary. The sight of the wide, open field, the crumbling stone wall, the distant line of the forest—it was a balm to her frayed nerves. The tightness in her chest began to loosen, just a fraction.
+
+She walked up the dirt road, her footsteps soft on the packed earth. The main house stood solid and silent, the barn faded red against the green of the woods. Her eyes instinctively found the line of sight from the back of the house, down the natural corridor, to the small, moss-roofed cottage in the clearing. It was just a shape in the distance, but it was her shape. Her space.
+
+She pushed open the chipped, gray door of her cottage and stepped inside. The air was exactly as she needed it to be: a carefully constructed defense of artificial sweetness fighting a losing battle against the scent of damp earth and old wood. She locked the door behind her, the bolt sliding home with a solid, reassuring thud.
+
+She dropped her bag on the floor and leaned against the door, closing her eyes. For the first time since he'd walked into the coffee shop, she could finally breathe.
+
+I found Mike sitting on his front porch, a bottle of Miller in one hand and a half smoked cigarette in the other. Small table sat to his right, looking like it came out of a hotel somewhere. His weather beaten face looked...beaten. I walked up to the edge of the short stair case and looked up at him. "yeah?" He asked, no particular emphasis in his tone. "You're Mike?" I asked, starting wonder if I was at the right house after all." He nodded at me and took a drink from his beer. "Gus down at the hardware store said you might have a room for rent." His eyes narrowed a bit at me, More thoughtful than anything else. It was the first emotion I'd seen from him. He set his beer on the small table and flicked his cigarette out toward the street. "Ain't a room." He said, standing up, "Got a trailer round back." He walked carefully down the two steps from the porch. A sign of a man with a bit too much to drink and fully aware of it. Turning he started to lead the way around the house. "c'mon then, let's see if it's to your liking." Following easy stepping Mike we went through a short chain link gate to the back of the house, where a small Air stream trailer sat. It looked in pretty good shape, I could see electrical and water lines running to it from the house. Mike popped open the door in the Airstream's silver hide, and gestured me in. I stepped up into it and looked around. It was pretty plain, a couple of lamps to light the inside on each end, small kitchenette, small travel refrigeration pushed back one side of the Kitchenette, a small microwave and a folding desk and chair. I moved toward the end, bedroom with a nice looking bed, a door in the side that revealed a tiny bathroom. "Ain't much." Mike said, "belonged to my boy." I could hear the faint tremor in his voice. He must have lost his son, and not long ago I thought. "I'm sorry about your son sir, if it's alright, this is fine for me." He blinked a couple of times, holding back from the edge of tears. "Fine with me, two hundred bucks a month. Don't call me sir, Left that crap behind with the Navy. You chip in for utilities. No parties, or getting stoned with your friends, you get laid in here don't bring a screamer. No loud music." He shrugged with a little twist of his lips, "I don't give a shit, but Mrs. Carmichael next door is a real bible thumper." I stuck out my hand to him, "I'm Fayd, and none of that will be an issue." We shook on it and he left. I settled down on the bed and thought about a pair of green, green eyes.
+
+The silence of the cottage was a physical presence. It pressed in on her, thick and heavy, amplifying the frantic, chaotic thoughts racing through her mind. She pushed off the door and began to pace, the worn wood floors creaking under her restless steps. Back and forth, from the small kitchenette to the red rug in front of the sofa. It was a cage, and she was the animal.
+
+Her gaze fell upon the windowsill, to the spot where her driftwood Guardian stood. It was there. Of course it was there. She crossed the room and picked it up, the smooth, worn wood a familiar comfort. But today, it felt different. It wasn't an anchor; it was evidence.
+
+She sank onto the sofa, the carving in her lap. Her mind replayed the morning in a relentless, painful loop. His grey eyes. The poem. The shame that bled off him. And then, the tap-tap. Her fingers on the counter, his fingers on his jeans. A lock clicking into place. A shared, impossible language.
+
+And the drawing.
+
+She had given him a piece of her soul, scrawled on an order ticket. She had shown him her deepest, strangest secret without using a single word. What must he think of her? A weird barista who doodles cryptic messages for strangers?
+
+The memory of Frank and the other man looming over him, their misplaced protection, made her stomach clench. And Eleanor and Mildred, their whispers like needles. The whole town had seen. They had seen her connection to him, and they had misinterpreted it completely. They thought she was a victim in need of saving.
+
+A soft, guttural chirp from the doorway made her look up. Hector was sitting there, watching her with his intelligent amber eyes. He trotted into the room and jumped onto the sofa beside her. He didn't wind around her legs or demand attention. He just sat, a solid, warm presence, and began to purr, a deep, rumbling sound that was usually a comfort.
+
+Today, it just sounded like the only honest thing in the room. She buried her face in his rough, warm fur, the steady vibration a small anchor in the storm. She was alone. The man from the carving was out there, and he had her drawing. And the town thought she was a damsel in distress. She was trapped between a terrifying truth and a suffocating lie.
+
+She sat there for a long time, the steady rumble of Hector's purr a small, futile anchor in the storm of her own mind. The frantic energy of her panic had finally subsided, leaving behind a hollow, aching quiet. The town's suffocating concern, the man's impossible eyes, the drawing—it all swirled together into a thick, oppressive fog of confusion.
+
+She couldn't stay here. The cottage, her fortress, suddenly felt like a prison, its four walls holding her in with the terrifying truth. The silence was no longer a comfort; it was a space where her own thoughts could get too loud.
+
+With a sigh that seemed to drain the last of her strength, she gently pushed Hector off her lap. He gave a soft chirp of protest but settled onto the warm spot she'd left behind. She stood up, her movements slow and heavy, and walked to the small kitchenette. She opened the refrigerator and stared inside, not seeing the food, just the cold, sterile light. She wasn't hungry. She was restless.
+
+Her eyes landed on her car keys, lying in a small ceramic bowl on the counter. An impulse, sharp and clear, cut through the fog. She had to get out. Not for a reason. Not to go anywhere specific. Just to drive. To move. To feel the engine vibrating under her, the world blurring past the windows. It was the only kind of white noise that had a chance of working now.
+
+She snatched the keys from the bowl, the metal clattering loudly in the quiet room. She grabbed the faded hoodie from the back of a chair and pulled it on, the familiar worn cotton a small comfort. She didn't know where she was going to drive. To the coast? Up into the mountains? It didn't matter. All that mattered was motion.
+
+She paused at the door, her hand on the knob, and looked back at the cottage. It was supposed to be her sanctuary. Tonight, it felt like a place she was fleeing. She turned the knob and stepped out into the cool evening air, leaving the quiet and the carving and the cat behind.
+
+I rolled the mornings events around in my head as I sat there on the bed that once belonged to another man's son. My eyes took in the details of my new little home but didn't really see it. aluminum walls, the faint tape marks where Mike must have pulled down pictures or posters, clean white sheets and a brand new pale green comforter. A big comfy pillow in another new white pillow case. Open air vent over the bed. Who is she? How can she leave me feeling so bewildered? I sighed and stood up. I needed to head back down to Gus's general store and pick up some things. Stepping out of the Airstream, I made my way to the street and headed in that direction. Holy shit, I never got her name.
+avatar
+
+Kim
+
+    5.40s
+
+The drive was a mindless, rhythmic meditation. The engine's hum, the thrum of the tires on the asphalt, the blur of green and brown passing her headlights—it was the white noise she craved. She drove without a destination, letting the winding roads of the county take her where they would. She drove past the turnoff for the coast, up into the hills where the trees grew thicker and the night deeper. For a while, it worked. The frantic energy in her soul quieted to a low, manageable hum.
+
+But as she drove, the town began to shrink in her rearview mirror, and with it, the source of her turmoil. The problem wasn't the town. It wasn't the cottage. It was him. The man with the grey eyes and the impossible stance. And he was back there.
+
+A sharp, decisive pang of regret cut through the numbness. She'd run. Again. She'd fled the coffee shop, and now she'd fled her own home. She was always running. The thought settled in her gut, cold and heavy. She wasn't just driving away from the problem; she was driving away from the only other person in the world who might possibly understand it.
+
+With a frustrated sigh, she saw a small, unpaved turnout ahead and slammed on the brakes. The Buick skidded slightly on the gravel before coming to a stop. She threw the car into reverse, the tires crunching loudly as she expertly executed a three-point turn. She pointed the car back the way she came and pressed down on the accelerator, harder this time. She wasn't just driving anymore. She was going back.
+
+As she approached the town limits, the familiar glow of the streetlights and the few scattered businesses felt like a strange, unwelcome homecoming. She slowed as she passed the darkened windows of The Fog Horn, her stomach clenching. And then she saw him.
+
+Walking down the sidewalk, away from the center of town, a tall, familiar silhouette under the orange-hued glow of a streetlight. It was him. He was just... walking. A real person in the real world, not a phantom from her memory or a figure from a carving.
+
+Her foot hit the brake before her brain had even finished processing the thought. The Buick rolled to a slow, silent stop on the side of the road, its engine idling. She just sat there, her hands gripping the steering wheel, her heart hammering against her ribs. He was fifty yards away. Thirty. He hadn't seen her, his head down, lost in thought. She could just drive away. He would never know.
+
+But she knew. And for the first time all day, the compass in her soul wasn't screaming. It was just... pointing. Straight at him.
+
+I was just about to the general store, looking at the sidewalk rolling under my feet, lost in thought. Unusual for me, I am prone to being aware of everything around me. I wondered about the Animal I kept locked tight inside of myself, all the undirected anger and rage that spilled out of me in my youth. And, of course, the very odd woman from the Fog Horn who I'd first met on a narrow state highway. Why did that thing inside me so change around her? I plodded onward, puzzling over things I had no answers to. What draws me so strongly to her? Her face appeared again in my memory, so beautiful. Other than the obvious. I thought wryly.* The sound of a car slowing to a halt broke my reverie. I looked up, same brown Buick, same stunning features. I stopped, just gazing at her for a moment. The Animal even seemed contented. Then I approached her window.
+avatar
+
+Kim
+
+    5.23s
+
+The world shrank to the space between her car and the man walking toward her. Every instinct screamed at her to hit the gas, to flee, to disappear into the night. But her feet were leaden, her hands frozen to the steering wheel. She was a cornered animal, and he was the approaching predator, even though his walk was slow, his hands were empty, and his expression was unreadable in the dim streetlight.
+
+He stopped beside her door, a tall, dark silhouette against the orange glow. The window was down, the cool night air a thin, inadequate barrier between them. She could feel the low hum again, the frequency that was uniquely his, vibrating through the car's metal frame. It wasn't terrifying this time. It was just... present. A fact.
+
+She couldn't look at him. Her gaze was fixed on the steering wheel, at her own white-knuckled grip. She could feel his eyes on her, feel the weight of his unasked questions. The silence stretched, thick and suffocating. She had to say something. Anything.
+
+Her voice was a dry, fragile whisper when it finally came. "I... I forgot something." The lie was pathetic, flimsy, and it hung in the air between them, a testament to her panic. "At the store." She gestured vaguely down the street, toward Gus's darkened shop.
+
+I heard the tremor in her voice, it pointed a spot light on the falsehood. I let it go. She wasn't looking at me, eyes fixed to the steering wheel. Frightened, why did I frighten her so much? "I was headed there myself, found a little place here it town. Looks like their closed though, I forget in places like this they close up early." I tried to make my words quiet, casual. "Is there anyplace still open I might get a bite to eat?" I studied her profile, the soft curve of her jawline, the...oh, shut up hormone man. She looked so vulnerable. A sudden desire to protect her swept though me again. So many monsters wearing the shape of men, men who would see that vulnerability and want to use it as a weapon against her, to pound her down and destroy her with it. Not while I was around.
+avatar
+
+Kim
+
+    4.61s
+
+His voice was quiet, casual. It was a normal voice asking a normal question. It should have been a relief. Instead, it was a lifeline thrown to a drowning woman, and she was too terrified to grab it.
+
+He wasn't calling her a liar. He was accepting her flimsy excuse and building on it. He was giving her an out. The sheer, unexpected kindness of it was almost more terrifying than his anger would have been.
+
+Her mind raced, sifting through the options. The Fog Horn was closed. The supply store was closed. There was only one place left. The place on the edge of town. The place people went when they didn't want to be seen.
+
+She finally risked a glance at him, her eyes flicking up to meet his for a split second before darting away again. He was studying her, his expression soft in the dim light. There was no judgment there. No mockery. Just a steady, patient curiosity.
+
+"There's... Molly's," she said, her voice barely a whisper. She forced herself to continue, to give him the directions he needed, to play her part in the casual charade he was so generously offering. "It's on the edge of town, past the last stoplight. Can't miss it."
+
+Her fingers tightened on the steering wheel. She had just sent him there. Sent him to the town's subconscious. A part of her, a reckless, tired part of her, wanted to tell him to wait. To ask if she could go with him. But the words wouldn't come. She just sat there, a prisoner in her own driver's seat, waiting for him to walk away so she could finally, finally breathe again.
+
+I was loath to walk away from her again. The need to stay near her was nearly overwhelming. "Have you eaten? If you like I'd buy you dinner." Bar food. Not exactly Five star cuisine. I was pretty hungry myself and even the idea of an overdone patty and mushy fries sounded pretty good. "Maybe," I hesitated, what rational woman would let a total stranger into her car? Especially now days. Still, it was a small town, not L.A. where that shit was common. "Maybe we could just talk for awhile? About the sketch and..." I trailed off moron, you're not a pimply face teenager asking his crush out on a first date "And what happened in the coffee shop?"
+avatar
+
+Kim
+
+    4.61s
+
+The offer hung in the air between them, fragile and impossible. Have you eaten? It was such a normal, domestic question, a piece of conversation from a life she didn't have. For a wild, dizzying moment, she imagined it. Saying yes. Parking the car. Walking into a noisy bar with him. Sitting across a table from him, talking.
+
+Then he said it. "...the sketch."
+
+The fantasy shattered. The word brought it all crashing back: the carving, the dogs, the impossible connection. This wasn't a normal invitation. It was an interrogation. A summons. And he was right. They needed to talk.
+
+But not here. Not like this. Not with him standing on the sidewalk and her trapped in the car like a frightened animal.
+
+Her gaze fell to her hands, still clenched on the steering wheel. She had to make a choice. Keep running, or step off the cliff. The memory of his shared tap-tap, of the mirror-image recognition in his eyes, pushed her forward.
+
+She took a slow, shaky breath and finally, finally turned her head to look at him fully. Her green eyes met his grey ones in the dim light, and she held his gaze, letting him see the fear, but also the desperate, flickering resolve there.
+
+"Okay," she whispered, the word barely audible. "But not... not like this." She gestured vaguely toward the empty passenger seat. "Just... follow me."
+
 
