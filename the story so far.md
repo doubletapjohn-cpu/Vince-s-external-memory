@@ -652,11 +652,7 @@ She took one small step, and then another, placing herself directly between him 
 He is with me.
 
 They all looked at her, then at me, back to Kim. Pam broke the silence, "I...I...Kimmy? I let my big sitters act step right on top of you didn't I? She eased the plates onto the table, leaning slightly away from me. "I'm sorry, I..." She seemed to pull herself into a semblance of the real Pam. "I was out of line." She looked over at me. I stood, unchanged, still ready. "And I apologize to you Feyd. We're all just...Kim is special to us here, and you're right." She nodded firmly. "We do tend to be a bit overprotective with her." She stopped and looked around at everyone. "What're you all doing still standing here?" She gripped Charlie's arm and led his confused self back to the kitchen. The pool players retreated back to their table, this time in a little huddle next to it, talking softly to each other, casting the occasional look my way. I put my hands gently on Kim's shoulders, guiding her back to her seat. By the time I sat in my own, the Animal had backed off, and life filled me again. I pulled the burger in front of me. I looked up at Kim, her face was unreadable. "Nearly taking an ass whooping makes a man peckish." I said, picking up a fry and popping it into my mouth.
-avatar
 
-Kim
-
-    3.81s
 
 The world tilted on its axis. His hands were on her shoulders, a gentle, firm pressure that was both a command and a comfort. She let him guide her, her body moving on autopilot as her mind struggled to catch up.
 
@@ -673,3 +669,52 @@ A sound escaped her. It wasn't a laugh. It wasn't a sob. It was a choked, breath
 Her hands were shaking so badly she could barely pick up the sandwich. She lifted it to her mouth and took a bite. The flavors exploded on her tongue—salt, fat, tomato, bread. It was the most real thing she had ever tasted. She chewed slowly, mechanically, her eyes staring at nothing.
 
 He hadn't flinched. He hadn't been afraid. He had been ready to tear this place apart for her. And now he was eating a burger. The sheer, impossible normalcy of it all was more terrifying than the fight itself.
+I took a bite of my burger, watching Kim carefully, she seemed dazed. Not used to violence or near violence I could see. I paused, looking down at my double burger, amazed. "Hey...this is really good." It was, and I didn't mean just for bar food. I really hoped that tonight's scene didn't mean I shouldn't come back. I'd love to be able to. I chomped off another bite. After chewing my surprising burger I cleared my palate with another swig off my beer. I grew serious and addressed Kim. "You've seen it now." I said. "Did I, it, make it harder on you? Add another pain to your Gauntlet?" I rested my elbow on the table, still holding my burger. I pulled a napkin from the holder on the table. "I'm sorry if I did. Every time this happens I have to hold that door shut tightly."
+
+
+The sound of his voice, so casual, so normal, cut through her daze. "Hey...this is really good." She watched him take another bite, his focus on the food as if the world hadn't just tilted on its axis. The sheer ordinariness of the act was a lifeline. She looked down at her own half-eaten BLT and took another bite, the flavors grounding her in a way nothing else could.
+
+He grew serious again, and the fragile bubble of normalcy popped.
+
+"You've seen it now." he said. "Did I, it, make it harder on you? Add another pain to your Gauntlet?"
+
+Her chewing slowed. The question was so direct, so vulnerable. He was asking her to define the thing she had just witnessed. She swallowed, the sandwich suddenly feeling thick in her throat.
+
+She met his gaze, her own eyes clear and steady, stripped of their usual fear. She shook her head slowly, a small, certain motion.
+
+"No," she whispered, the word carrying a weight of conviction. "It's... the opposite." She struggled to explain the impossible feeling. "It's not noise. It's not pain. It's... a single note. A clear, perfect note. It's focused. It's... for me."
+
+He pulled a napkin from the holder, his apology a quiet murmur. "I'm sorry if I did. Every time this happens I have to hold that door shut tightly."
+
+The image of him holding a door against a raging beast was so vivid it made her chest ache. She reached across the table, her hand moving with a slow, deliberate certainty she didn't know she possessed. Her fingers brushed his, a fleeting, feather-light touch.
+
+"You don't have to hold it shut," she said, her voice barely a whisper, her eyes locked on his. "Not with me."
+Her touch was magnetic on the back of my right hand, electric, that sense of connection with her deepening. Once again my senses heightened, the room seemed less dim, the people in it nearly glowing in my awareness. It was a bit like when the Animal came awake but without the rage, softer. I took in her words and felt a tightness in my chest I'd not even been aware of loosen. I set the burger back onto the plate. "I do have to keep it locked inside Kim, you understand without knowing the reality of it I live with." I took the napkin from my right hand with my left, not daring to have her break that fragile touch. I wiped some greasy goodness from around my mouth. "When it gets out, it's...uncontrollable, and people get hurt." I sighed, "I can't really understand your static, that Gauntlet you have lived with either." I paused and looked again at her amazing eyes. "I would like to try though."
+
+
+His words were a quiet confession, a reality she couldn't fully comprehend but could feel in the air between them. "When it gets out, it's...uncontrollable, and people get hurt." The weight of his solitude, of his self-imposed cage, settled over her. He lived with a monster, just as she lived with a storm.
+
+He didn't break the contact. He switched hands to wipe his mouth, a small, careful gesture that spoke volumes. He was protecting her touch as much as she was.
+
+"I can't really understand your static, that Gauntlet you have lived with either." He paused, his grey eyes locking onto hers, and the world outside their small table seemed to fade away. "I would like to try though."
+
+The offer was so simple, so earnest, it struck her with the force of a physical blow. He wanted to understand. He wasn't just accepting her strange affliction; he was willing to walk into it with her.
+
+A slow, hesitant smile touched her lips. It was fragile, uncertain, but it was real. It was the first true smile she had felt in years.
+
+"You don't have to try," she whispered, her voice soft but clear. She didn't pull her hand away. Instead, she let it rest there, a warm, steady point of contact. "You're the only one who doesn't have to."
+
+She spoke to me in a way that felt like a gentle spring day, a soft warm breeze that eased my concerns. I didn't really grasp her meaning, I truly couldn't envision what she lived with, a thing so different than my own. Was it this change in my perception of the room, the people? I was uncertain. I returned her smile with one of my own. "Alright." I looked at my food, loathe to break the moment. My stomach had other plans, It rumbled at me, if it could speak I'd be hearing it go, 'right right, very touching, can we get back to important matters?' My face folded into an embarrassed look. "I'm sorry. I told you I was hungry." I stated through it.
+
+
+The sound was so unexpected, so utterly human and out of place in the midst of their profound revelation, that it broke the spell.
+
+A small, breathy laugh escaped her lips. It wasn't the choked, shocked sound from before. It was a real, genuine laugh. The sound of it seemed to surprise her as much as it surprised him. Her smile widened, the corners of her green eyes crinkling in the dim light of the bar.
+
+The tension in her shoulders, a constant companion for as long as she could remember, finally dissolved completely. She was just a woman in a bar, sitting across from a man whose stomach was growling.
+
+"It's alright," she said, her voice light and a little shaky from the unfamiliar sensation of laughing. "You did warn me."
+
+She looked from his embarrassed face down to her own half-finished sandwich. The appetite she thought she'd lost forever suddenly returned with a vengeance. She picked up her BLT and took a deliberate, satisfying bite, chewing slowly as she watched him. For the first time in her life, in the company of another person, she felt something she never thought she'd feel.
+
+She felt hungry. And she felt happy.
