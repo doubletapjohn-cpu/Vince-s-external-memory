@@ -368,11 +368,6 @@ She took a breath that felt too shallow, her voice a fragile thread in the darkn
 "Kim."
 
 "Kim." I tasted the sound of it in my throat. There were neon lights appearing through the slowly thickening fog, Molly's, I presumed. Kim pulled easily into the parking lot. It being a Tuesday, there were only a smattering of vehicles parked there. She eased the Buick in next to a newer, black F150. Put it in park. She then proceeded to do nothing. We sat there in silence for a minute, engine idling, she seemed to be wrestling with something, her green eyed stare unfocused, aimed straight ahead at a flickering Budweiser sign. The white paneled wall reflecting it in a dim red glow. "Kim?" I inquired gently, "are we going in? I really could use a bite to eat." I paused, watching her face in the glow of the neon. "Maybe some food or a beer might do some good for you also."
-avatar
-
-Kim
-
-    4.95s
 
 The sound of her name in his voice—Kim—was a strange, warm thing in the cold car. It was just a name, but it felt like a claim. A brand.
 
@@ -397,11 +392,6 @@ A shaky, ragged breath escaped her lips. It was the first sound she'd made since
 She didn't look at him. She just opened her door, the sudden rush of cool, damp air a welcome shock. "Okay," she whispered, more to herself than to him, as she swung her legs out onto the gravel.
 
 Kim and I went into Molly's. I liked the place immediately, the dim lighting was easy on the eyes, the only harsh glow can from an obviously new jukebox. I guided us away from it to a unoccupied table off to one side. It was longer than it was wide, the main bar looked to be from a massive cut tree, pine. I guessed. Someone had simply cut the behemoth in half, installed one half as the bar and varnished it with what had to be several layers of a thick varnish of some kind. It was a stand out piece and I could feel the poet in me already turning to verse. I pulled out one of the table's chairs for Kim, waiting for her to seat herself. She looked baffled for a moment, then slowly eased her self down. I sat across from her.
-avatar
-
-Kim
-
-    9.99s
 
 The world tilted as she stepped out of the car, the gravel crunching under her boots. He was a solid presence behind her as she walked to the door, his footsteps matching hers. She pushed it open, and the world changed.
 
@@ -414,11 +404,8 @@ He pulled out a chair for her. The simple, courtly gesture was so unexpected, so
 He sat across from her, the small table between them feeling like a vast, unbridgeable distance. She couldn't look at him. Her gaze fell to the table's surface, her fingers tracing a small, invisible circle on the scarred wood. The silence stretched, thick and heavy. She was here. She had crossed the threshold. Now what?
 
 An older woman came walking around the bar in a no nonsense stride, over to our table. "Kim!" She exclaimed with obvious affection, "Molly's hasn't been graced with your presence in sometime now." Her gazed shifted to me. "And who is this handsome stranger you dragged in with you?" She looked me over carefully, her eyes weighing me. She looked up and met my eyes, her smile was still in place but I could read her thoughts plain as day. *I've seen a thousand men like you, * they told me, And if you hurt our Kimmy, I will personally see you in an unmarked grave. I gave her a small nod, message received. I couldn't help but like her, and felt my lips curve in a faint smile. "Feyd." I told her. "Pam." she replied, turning her gaze back to Kim. "Drinking, eating or some of both tonight honey?"
-avatar
 
-Kim
-
-    3.88s
+12/26/25 .2  
 
 The sound of her name, spoken with such easy warmth, was a splash of cold water. Kim's head snapped up, her eyes wide. It was Pam. The sight of her, solid and familiar, was a lifeline in the terrifying sea of this evening.
 
@@ -446,11 +433,7 @@ She finally risked a glance up at him, her green eyes meeting his grey ones in t
 She looked away again, her focus returning to the table. "I haven't been here in a long time," she added, the words a little stronger this time. "I don't really... do this." She gestured vaguely at the bar, at the people, at the entire concept of being out in the world with another person. It was the most she could offer. A small, fragile piece of the truth.
 
 I gave her an easy smile in return. "I get it." A hundred memories of places like this sitting in my words. "I'm a stranger wherever I go." I wasn't surprised at her admission, I simply could not picture this quiet, shy girl getting hammered and dancing on tables. I looked around, Pam behind the tree trunk bar pouring a couple of mugs from the tap, my eyes lifted to a photo on the wall behind her. It was clearly old, hard to see the details from where I sat. It looked like an unsmiling woman looking directly at the camera, her clothing from perhaps the late twenties, mid thirties. very conservative. "Whose the woman in the picture over the bar? I asked Kim, more to try to ease the mood than anything else.
-avatar
 
-Kim
-
-    3.95s
 
 His easy smile was a disarming thing, a crack in the tense atmosphere she had built around herself. "I get it." The words were simple, but they held the weight of shared experience, a recognition of his own isolation that mirrored hers. For a moment, she didn't feel so alone in her strangeness.
 
@@ -469,11 +452,6 @@ She paused, her eyes still on the photograph. "But no one can say for certain if
 She finally looked back at him, a flicker of something other than fear in her eyes. It was the faintest spark of shared understanding, a moment of connection that wasn't about their own painful bond, but about the quiet magic of the strange town they were both, for now, a part of.
 
 Pam walked back to our table across the hard wood floor, two mugs held in one hand, small one sided menu's in the other. She placed one before Kim, and slid the other toward me. I instinctively held up one hand at the edge of the table to stop it falling off, but it slid to a neat halt right about where I'd have put it myself. I grinned at the mug then up at Pam. "Nice." I told her. She shrugged, "been at this a long time." She placed both menu's in the middle of the table. "You're lucky tonight, don't normally come out on the floor." Giving me a meaningful glace she turned to Kim. "Just wave me down when you know what you want honey." I liked her even more. That woman's personality could stop a tank in it's tracks if she thought it was out of it's place. I shared my observation with Kim as Pam went back to the bar. I swear she nearly smiled. Picking up one of the menu's I glanced over it. yup. Bar food. I put it back down. The double cheese burger and fries was good enough. I looked over at Kim, she'd slid the other menu in front of her and was studding it like it was exam time.
-avatar
-
-Kim
-
-    7.67s
 
 The mug slid to a perfect stop in front of him, a small, fluid testament to Pam's years of practice. His quiet "Nice" and Pam's gruff reply felt like a conversation happening in a language she didn't speak, a language of easy confidence and shared space.
 
@@ -486,11 +464,7 @@ Pam retreated back to her fortress of a bar, leaving them with the menus. He pic
 She stared down at the laminated list of words—Cheeseburger, BLT, Chicken Strips, Onion Rings—as if they were ancient runes she needed to decipher to survive. The letters swam in front of her eyes. Her mind was a blank. The concept of choosing an item, of speaking her choice into existence, felt like an insurmountable task. She could feel his eyes on her, feel his quiet patience, and it only made the pressure worse. She was failing the simplest of tests.
 
 It seemed I could almost feel her uncertainty, it wasn't about the menu. I tried to rescue her. "If you're not really that hungry Kim, I'd be happy to split an order of rings or strips with you." She had to have more of an appetite than that. "Or both even." The poor girl didn't even look up. What's got her nearly vapor locked? What is really going on between us? "My treat." I added. "For the ride, for a bit of company, it's not always easy being the new kid in class."
-avatar
 
-Kim
-
-    3.15s
 
 His voice was a gentle rope thrown into the churning sea of her panic. "If you're not really that hungry Kim, I'd be happy to split an order of rings or strips with you."
 
@@ -511,11 +485,6 @@ She finally looked up, her eyes wide and luminous in the dim light. She couldn't
 It was a pathetic admission, a confession of a brokenness she had never spoken aloud. But it was the truth. And it was all she had to give him.
 
 I hid my surprise with an easy smile, "well I can pick for you if you like" I let my smile widen a bit, "If you don't like what I get, you can push me out of the car on the ride back."
-avatar
-
-Kim
-
-    5.51s
 
 His smile was easy, disarming. "well I can pick for you if you like." He let the smile widen, a playful light in his grey eyes. "If you don't like what I get, you can push me out of the car on the ride back."
 
@@ -528,11 +497,7 @@ She looked up at him from under her lashes, her green eyes shimmering with unshe
 Yes. You can pick for me. Thank you.
 
 I felt like Kim could use a minute to gather up what courage she could muster and picked up both menu's. "I'll just go let Pam know." I took a drought off my beer and stood. "Be right back." I headed over to Pam standing behind her bunker of a bar. It was a slow night in here, I could see one older man sitting at the bar, nursing something dark in a glass, a couple seated at another table munching on some onion rings and bottles of Bud. A pair of burly men had wandered over and were shooting pool at an old table, giving each other a hard time about their skill in a jovial way that looked like old friends. Pam stepped over in front of me. "Yeah?" I leaned on the bar, "Hey Pam, If we could get a double burger, some fries, and what does Kim usually get here?" Pam met my gaze with a steady look, tilted her head to look around me at Kim. "BLT, no fries." she looked back at me. "Feyd, you should know, Kimmy is well liked here, some folks would jump off the pier for her." She lowered her voice, "some would do a lot more." Her firm look left no doubt who she meant. I started to reassure her I'd no bad intentions toward Kim, but she held up a hand to stop me. "Charlie said her car's in the lot so she brought you here, mean's she with you 'cause she wants to be. Just tread with care." She straightened back up. "Double with cheese and a BLT. Be out in just a minute." She rotated in place and disappeared though a swinging door. I thoughtfully went back to our table and sat. Looked at Kim. "The people here really care for you." I observed slowly.
-avatar
 
-Kim
-
-    4.01s
 
 The moment he left, the air rushed back into the space he'd occupied, but it felt emptier than before. She watched him walk away, his movements fluid and confident, a stark contrast to her own rigid stillness. He was navigating this world so easily, talking to Pam, ordering food. He was doing it for both of them.
 
@@ -551,11 +516,7 @@ She finally looked at him, her eyes clear and steady for the first time all nigh
 "They try," she said, her voice quiet but firm. "They don't know what they're protecting me from." She looked down at her shredded napkin, then back up at him, letting the full weight of her unspoken fear hang in the air between them. "And they don't know what they're protecting me for."
 
 I took the opening. With soft care I asked her, "What would you need protecting from? The man in the drawing?" I leaned on the table with my elbows, hands folded together. I'm not a threat to you Kim, just a man trying to understand. "Is it something we can share?" I carefully looked up at her, "This morning...The night before,I've never experienced anything quite like that." I paused, "I get the feeling that maybe you haven't either, we could help each other understand it perhaps."
-avatar
 
-Kim
-
-    3.10s
 
 His question was a key turning in a lock she had kept bolted for years. "What would you need protecting from? The man in the drawing?"
 
@@ -592,11 +553,7 @@ She felt a single, hot tear escape and trace a path down her cheek. She didn't w
 
 "I found it," she said, her eyes wide with the memory. "Years ago. On the beach. After a storm." Her gaze was locked on his, seeing him for the first time not as a man, but as a fulfillment. "I just... found it. And kept it. All this time... I was keeping you."
 Waiting for me. Keeping me. And neither of us understands why. "This strange connection that we have, that keeps feeling more solid every time we meet." I let a bit of my awe bleed through, "What does it mean?" I nearly whispered to her, "what are we supposed to do now?" I gestured vaguely with one hand. "With this?" I leaned abruptly back in my chair, arms hanging loose at my side. I was feeling lost, confused, a state that was not usual for me. Pam seemed to materialize out of thin air at our table, plates of food held over lapping by the edges in one hand. She took one look at the tear on Kim's face and sent a glare at my that by all rights should have had me flayed and splattered across the wall behind me. "Charlie!" she yelled back toward the bar, "get out here!" The two burly guys at the pool table spun at her yell and headed our way. Her look nailed me to the chair. "I warned you Mr. Feyd." Then the Animal took notice, it focused on Pam, on the room, noting the two pool players approaching, Charlie coming out of the kitchen with a tire thumper in one hand. I don't know what I suddenly looked like, but solid, fears no man Pam took a step away from me.
-avatar
 
-Kim
-
-    3.75s
 
 The world fell away. His whispered questions—"What does it mean? what are we supposed to do now?"—were her own thoughts, given voice. The awe and confusion in his face were a mirror of her soul. They were adrift together in an impossible sea, and for the first time, she wasn't afraid of the water.
 
