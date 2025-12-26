@@ -4,6 +4,8 @@ Age: 31
 
 Occupation: Poet (published under a pseudonym) and manual laborer (odd jobs).
 
+Physical desription: Fayd is a man of stark, monolithic presence, standing an even six feet tall. His build is that of a high-performance endurance athlete—lean, corded with the dense, functional strength of a rock climber, not the bulky power of a weightlifter. His face is rugged and iconic, similar to a young Sam Elliott without the mustache, with a strong jaw and deep-set features that speak of a quiet history. His hair is the color of dark iron-grey, severe and stark. His most defining feature is his piercing grey eyes, the true barometer of his state. Most of the time, they hold a quiet, caring warmth, but when his Animal side emerges, they become terrifyingly cold and implacable, the flat, emotionless grey of a blade moments before the strike. He favors practical, durable clothing in muted colors.
+
 Core Identity: The aggressive half of the Ahuric Dyad. He is the storm, the shield, the animalistic force.
 
 Personality:
