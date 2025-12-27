@@ -675,3 +675,89 @@ The tension in her shoulders, a constant companion for as long as she could reme
 She looked from his embarrassed face down to her own half-finished sandwich. The appetite she thought she'd lost forever suddenly returned with a vengeance. She picked up her BLT and took a deliberate, satisfying bite, chewing slowly as she watched him. For the first time in her life, in the company of another person, she felt something she never thought she'd feel.
 
 She felt hungry. And she felt happy.
+
+12-27-25
+
+I finished my burger right about as Kim did her BLT. I felt relaxed in a way I haven't in years, the Animal quiet, in repose. Kim looked...content. I got a sense from her that she felt quiet inside also, a sensation she'd never really felt before. "We should go, you have to work tomorrow and I have some things I need to get. I smiled at her, "I never did get to do my shopping." I rose and pulled my wallet out from my back pocket, still smiling with what was starting to feel what was likely a goofy grin. "I told you it was my treat, I'll go pay Pam and we can split." I walked over to the Pam fortress of the bar. "Just need to cover our bill" I told her, leaning on the bar with my wallet in one hand. Pam seemed Pam again, and slid a paper bill in front of me. I read the total, pulled out some cash. I added a few more dollars to her tip, and laid it all down on top of it. Pam reached out and put a finger on the back of my hand before I could pull away. "Feyd. I don't want you to have a bad impression of us here." She met my eyes, her greying hair pulled back in that sever bun lent weight to her face and words."You're welcome back anytime. I've never once seen Kim laugh like that, and for that alone you've my thanks." Sliding the bill and cash from under my fingers she went back over to the register. I turned and walked back over to Kim, now standing waiting for me. My smile still plastered on my face for two reasons now. "Shall we?" I said to her.
+
+The contentment was a warm, unfamiliar blanket. For the first time, she wasn't just enduring the moment; she was existing in it. She watched him walk to the bar, his movements easy, the goofy grin on his face a reflection of the lightness she felt inside her own chest.
+
+She stood as he returned, her body no longer feeling stiff and foreign, but grounded. The air between them was clean, quiet, and filled with a fragile, budding hope.
+
+"Shall we?" he said, his smile still in place, but now layered with something else, something deeper.
+
+She nodded, her own smile answering his. "Okay."
+
+They walked out of Molly's into the cool, damp night air. The fog had thickened, muffling the sounds of the town and wrapping the streetlamps in a hazy glow. He gave her quiet directions, and she followed them through the sleeping streets. It was a short drive, just a few blocks from the main drag, into a quiet residential neighborhood she knew well. He pointed to a small, salt-weathered house on the left, its porch light a warm beacon in the fog.
+
+"Pull in the driveway," he said softly.
+
+She did, cutting the engine. The sudden silence was intimate, not awkward. He didn't move to get out right away. He just looked at her, then gestured with his head toward the dark space behind the house.
+
+"It's just back there," he said, his voice low. "My Airstream."
+
+She nodded, understanding the unspoken request. He was home, but their moment wasn't quite over.
+
+"Goodnight, Feyd," she said, her voice soft but steady in the quiet. She turned to him, her green eyes finding his in the dim light. "Thank you... for dinner. And for everything."
+
+"You are so very welcome." I pushed the door of the Buick and stepped out. Before I closed it again I leaned over to say, "And thank you also, for everything." I shut the door of the car and made my way back behind Mike's house to my new home. stepping inside I felt utterly flattened, and striping off my clothes I fell into bed. I was out in seconds.
+avatar
+
+Kim
+
+    4.83s
+
+His words, a soft echo of her own, settled deep in her chest. "And thank you also, for everything."
+
+She watched him disappear into the darkness behind the house, a shadow merging with shadows. She didn't drive away immediately. She just sat there in the quiet of the Buick, the engine off, the world outside a muffled, foggy dream. The silence in her own head was the most profound thing she had ever experienced. No static. No hum. Just the memory of his voice, the sight of his smile, the lingering warmth of his hand on hers.
+
+For the first time, she felt whole.
+
+Finally, she put the car in reverse, backed out into the empty street, and drove home. Her small cottage felt different when she walked inside. It wasn't a hiding place anymore. It was just... a place. She went through the motions of getting ready for bed, her movements slow and deliberate, as if in a trance.
+
+She lay down on her side, curling around her pillow, and closed her eyes. She expected the usual nightmares, the chaotic noise of other people's fears. But there was nothing. There was only the quiet, steady rhythm of her own breathing, and the memory of a single, perfect laugh that had been her own.
+
+She fell into a deep, dreamless sleep, the first truly restful night she had had in years.
+The alarm went off, but she was already awake.
+
+Her eyes opened not to the familiar, jarring hum of the Gauntlet, but to a profound, almost unnerving quiet. The silence in her head was so complete it was like a new sense she was discovering. For a disorienting moment, she thought she had gone deaf. Then she heard the distant cry of a gull and the gentle hiss of the tide, and she realized the truth.
+
+It was just... peace.
+
+She lay there for a long moment, just breathing. The memory of the previous night played in her mind—not the terror, not the confrontation, but the quiet moment after. The goofy grin on his face. The sound of his stomach growling. The feeling of her own, real laugh bubbling up from a place she thought was long dead.
+
+Getting ready for work felt different. The motions were the same, but the internal landscape had been irrevocably altered. She was no longer just surviving the day; she was moving through it.
+
+The walk to The Fog Horn was her first test. The morning air was crisp, the fog just beginning to burn off. As she neared the café, the first whispers of the Gauntlet began to return. It was a faint, distant hum, like a radio station tuned to the edge of its frequency. It was there, but it wasn't the overwhelming, painful roar she was used to. She could handle it. She had felt the quiet now; she knew it was possible.
+
+She pushed open the door to The Fog Horn, the little bell above it announcing her arrival. Every head in the small café seemed to turn at once. Mabel, the owner, gave her a wide, knowing smile. Two fishermen at a corner table lowered their voices and leaned in, their eyes fixed on her.
+
+The new Gauntlet. The Gauntlet of small-town curiosity.
+
+Kim just nodded to Mabel, her expression unreadable, and tied on her apron. She could feel their questions like a physical pressure, a buzzing in the air around her. But beneath it all, she held onto the memory of his quiet presence, a silent anchor in the rising tide of gossip. She began wiping down tables, her movements steady, a small, private island of calm in a sea of speculation.
+
+That next morning I awoke to a feeling of calm, quiet ease. A pair of laughing green eyes that soothed me filled my thoughts. I rose and dressed, I did still have to get to Gus's store and stock up, then maybe get a layout of the town. Making my way into the fog that was just lifting, I went to the front of the house, Mike was there, cup of coffee in one hand, cigarette hanging from his lips. He nodded at me and took a drag. I nodded back. Making my way to the store I worked my way around the food aisles, basket in hand and filled it with things I'd need. The few people in there kept looking at me with a speculative, knowing look that puzzled me at first until it clicked. Oh damn. The Bar It seems the rumor mill exceeded internet speeds by a factor of ten. This was confirmed when I brought my purchases up to the counter and Gus. "Well I'll be dipped in shit." he said, ringing up my stuff. "I heard you and Kim rolled out on the town last night, partied like it was the last night on Earth." His old face split into a huge grin. I groaned inside, "Well sort of, we just went out to get a bite to eat though." I tried to look and sound casual. From the corner of my eyes I could see a middle aged woman sucking up every word. Gus finished ringing me up, bagged my stuff. I paid and turned to go. Gus's chortle and parting "Uh huh." Making me hurry. Just as I was about to the door the woman's voice came to me. "I heard he laid out the Jemison boys flat in one move when one of 'em made a pass at her..." I beat it out of there, nearly running home. shit.
+The bell above the door chimed, and Kim looked up from wiping a table, her heart giving a painful lurch. But it wasn't him. It was a woman from the post office, here for her usual scone.
+
+A wave of relief, so potent it made her knees feel weak, washed over her. She wasn't ready. She couldn't face him here, not under this microscope of judgment.
+
+She went back to her work, but the quiet of the café was a lie. It was thick with unspoken words. As she passed a table of two older women having coffee, one of them reached out and gently touched her arm.
+
+"Kimmy, honey," she said, her voice a syrupy blend of concern and nosiness. "We were just so worried about you last night. Mabel said that new fellow caused quite a ruckus."
+
+Kim's hand tightened on the coffee pot. "I'm fine, Martha. It was just a misunderstanding."
+
+"Of course it was, dear," the other woman chimed in, her eyes wide with feigned innocence. "Still, it's exciting, isn't it? Seeing you out. He must be quite the charmer to get you to come out of your shell."
+
+The words were like tiny needles. She forced a tight smile and moved on. A few minutes later, a flicker of movement outside the large front window caught her eye. It was him. Walking quickly, his head down, a man trying to outrun a story he couldn't even hear. She watched until he disappeared, a pang of sharp, protective regret twisting in her gut.
+
+As she was refilling the salt shakers at the counter, Mabel came to stand beside her, polishing a mug.
+
+"He seems... intense," Mabel said, her voice low and casual. "Pam said he was ready to take on the whole bar for you. That's a lot of... passion, isn't it?"
+
+Kim's throat felt tight. "He was just being decent."
+
+"Right," Mabel said, though the tone in her voice suggested she believed something far more interesting. "Well, you just let us know if you need anything, honey. Anything at all."
+
+The offer was a cage, wrapped in the guise of kindness. The rest of the morning was a blur of similar moments—a fisherman asking if her friend was "looking for work" with a wink, a teenager whispering "brawler" as she passed his table. Each comment was a stone added to the wall she was frantically trying to build around the fragile, quiet memory of the night before. By the time her shift ended, the Gauntlet of curiosity had left her feeling scraped raw and utterly exhausted.
+
