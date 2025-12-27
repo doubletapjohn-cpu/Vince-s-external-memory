@@ -1,6 +1,6 @@
 The Miller Property: A Complete Description
 
-Overview: The Miller property is a secluded, 80-acre parcel of land in a rural, forested region. It is a world unto itself, defined by its profound isolation and the stark contrast between its maintained, civilized core and the untamed wilderness that surrounds it.
+Overview: The Miller property is a secluded, 80-acre parcel of land in a rural, forested region. It is about seven miles from Port Provenance. It is a world unto itself, defined by its profound isolation and the stark contrast between its maintained, civilized core and the untamed wilderness that surrounds it.
 
 Access & Isolation: The property is accessed exclusively by a private dirt road that splits off from a quiet state highway approximately a mile away. This road is the sole point of entry and it dead-ends at the property line, ensuring there is no passing traffic and no casual visitors. This creates a sense of being a small, self-contained kingdom, completely cut off from the outside world.
 
