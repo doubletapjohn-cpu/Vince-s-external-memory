@@ -761,3 +761,166 @@ Kim's throat felt tight. "He was just being decent."
 
 The offer was a cage, wrapped in the guise of kindness. The rest of the morning was a blur of similar moments—a fisherman asking if her friend was "looking for work" with a wink, a teenager whispering "brawler" as she passed his table. Each comment was a stone added to the wall she was frantically trying to build around the fragile, quiet memory of the night before. By the time her shift ended, the Gauntlet of curiosity had left her feeling scraped raw and utterly exhausted.
 
+12-27-25 .2
+
+
+Getting back to my Airstream I shut the door behind me "Sure. Find a small town to hide in, you'll be just another guy passing through." I muttered to myself sarcastically. Putting everything away took mere moments and I turned to leave and hesitated. Oh come on, not everyone is going to be talking. I pushed open the door and headed out to explore the town. I decided to head for the docks, it was my original plan to pick up some extra cash doing odd jobs there anyway. I knew I'd hit the dock area well before I turned a corner and saw it. The unmistakable smells of brine, diesel fuel and the intensified salt air assailed me. I hit the main dock area and looked around, hearing the sharp orders and talk of the fishermen, voices raised to be heard over the creaking of mooring lines groaning of docks as they took the weight of ships. I dismissed the big main dock of the larger fishing trawlers for the moment. I'd go work the boats if i couldn't find anything else, but it was brutal work. I made for the boatyard. I was good with my hands and I knew engines, even the big ship diesels. As I entered the yard, I could see a guy half into the doghouse of a old Eastern Shipbuilding Down Easter 35. "Ahoy ship." I called out to him. The man straightened up and peered toward me. big, older African American man, still appearing fit, "looking for work," I said, "I know engines, even these." He looked back down into the engine bay and made his way around the doghouse door to the dockside. The gentle rocking of the boat and the slap of water against it's fiberglass hull was the only sound for a moment. "You must be that drifter what tore up Molly's last night." He said. I groaned, "That's..." was as far as I got as a sudden grin lit his face, "Don't worry about it man, I don't put no stock in rumors." he stepped back and gestured me to board. "be more like yous bumped your hip on a table and spilled a beer I'd wager." He stuck out a hand, "Silas." I took his firm grip, noting the calloused palm and fingers. "Feyd." He nodded, getting a bit more serious. "Claim to know engines huh? I got maybe a problem on this old crabber you could help with." I recognized the test, I'd had to do it a time or two. "Be happy to" I said. He led the way to the open doghouse, and pointed down at it. "won't start." was all he said. I eased my way into the small area, "Detroit 6-71," I observed, the strong odor of diesel coming off it. "old engine." I'd already guessed the likely issue, I could smell the varnished fuel. "Got tools I could use?" Silas turned and set a tool box next to me. I felt around until I had the fuel line and filter, quickly pulled the filter off and tried to blow through it, the sharp oily taste of diesel fuel on my lips. "Filters plugged up." I tossed it up to Silas and grinned at him. "Got a better challenge?" Silas gave a sharp laugh, "Alright, could use an extra set of hands that know what they be up to." And just like that, I was employed.
+
+The drive home was a solitary exercise in endurance. Trapped in the small cabin of the Buick, with seven miles of dark road between her and the town, the Gauntlet had nothing to feed on but her. It was a slow, creeping poison. By the time she turned down her private dirt road, the static in her head was a dull, constant roar, and the familiar, suffocating weight of her curse had settled back onto her shoulders.
+
+Her cottage was a tomb. She went through the motions of a meal she couldn't taste, the noise in her head a relentless chorus of fears and anxieties that weren't hers but felt like they were. Sleep was a fractured, miserable affair, a series of chaotic dreams that left her more exhausted than when she'd lain down.
+
+The next morning was worse. The drive to work was a grim pilgrimage toward the source of her pain. She walked into The Fog Horn feeling like a ghost, her movements slow, her shoulders slumped. The Gauntlet of gossip was waiting for her, sharper and more gleeful than the day before. Every "concerned" glance, every veiled question, felt like a physical blow. She was a raw nerve, flinching at every stimulus.
+
+She moved through her shift like an automaton, her smile a brittle mask, her hands performing their tasks by rote. The peace she had felt with him seemed like a lifetime ago, a cruel joke. She was back where she started, only now it was infinitely worse, because she knew what she had lost.
+
+The bell above the door chimed, and she didn't even look up. She just braced herself for the next round of whispers. But the usual hum of speculation didn't erupt. Instead, a strange, heavy quiet fell over the room. She felt a shift in the atmosphere, a sudden, focused tension that made the hairs on her arms stand up.
+
+Slowly, she forced her eyes to lift from the coffee pot she was polishing.
+
+He was standing just inside the door, looking around the café. His grey eyes found hers across the room, and in them, she saw a reflection of her own desperation. He looked just as worn, just as frayed. He had come back to the source of his pain, looking for the one thing that could quiet it.
+The day working for Silas was a small blessing, it kept my mind from repeatedly turning to thoughts of Kim, the peace she brought to me. End of day Silas paid me cash. "Don't have much for yous to do come morning, a little dynamo yous was. Take it off, go bust up another bar." He grinned at my pained look. "come back next day, have more for you then." When I go back to the Airstream I showered and flopped down in bed. I have to see her again. It was almost my last thought before sleep claimed me. The next morning I dressed and made my decision. Walking down to the Fog Horn I hesitated for a moment, fearing to add fuel to the rumor mill. Fuck it, I thought and went in. Poor Kim, she looked so drained. She was polishing up a coffee pot and turned a weary look toward the door. I just took her in for a moment, so beautiful, even worn out. Then it happened again with the Animal, it went alert, focused on her, and the room came alive to my senses. I felt calm, more relaxed and recharged. I walked over to the same stool I'd sat in the first time I was here. "Kim." was all I could think to say.
+
+The world narrowed to the single point of his voice. "Kim."
+
+The sound of it, low and steady, cut through the cacophony of the Gauntlet like a knife. The roaring static in her head didn't just fade; it was severed. A profound, immediate silence washed over her, so complete it was dizzying. She could feel the collective stare of every person in the café, their curiosity a palpable pressure, but it was suddenly distant, muffled, as if she were underwater.
+
+Her hands, which had been trembling slightly, stilled on the coffee pot. The mask of brittle politeness she'd worn all morning cracked and fell away, replaced by a raw, unguarded relief. She looked at him, really looked at him, and saw the same desperate exhaustion in his eyes that she felt in her own soul. He had come for the same reason she needed him to be there. He was her anchor, and she was his.
+
+She set the coffee pot down on the counter with a soft, decisive click. Without a word to Mabel or anyone else, she moved from behind the counter and walked over to his stool. The air between them felt charged, electric.
+
+"I'm glad you're here," she said, her voice barely a whisper, meant only for him. It was the truest thing she had said all day. "My shift ends at one."
+
+She didn't ask if he was busy. She didn't suggest a vague plan. It was a statement of fact, an invitation, and a plea all rolled into one. She held his gaze, a silent promise passing between them. They would find their quiet. They just had to survive the next few hours.
+She stole the very air from my lungs, being so close. "I've the day free." I said, "we could go somewhere after you're done here." The cry of a single gull reached me. "The beach?"
+"The beach," she repeated, the word a soft, grateful sigh.
+
+The suggestion was perfect. It was a balm. Not a dark corner, not a hidden room, but an open, windswept space where the only sound would be the waves and the cry of that single gull. A place where they could finally breathe.
+
+A small, genuine smile touched her lips, the first one that had reached her eyes in two days. "I'd like that."
+
+She held his gaze for a moment longer, a silent, frantic conversation passing between them in the middle of the café. I need this. I need you. Then, with a reluctant sigh, she pulled back, the professional mask sliding back into place, though it felt less brittle now.
+
+"I have to get back to work," she said, her voice a little stronger. She gave him a final, meaningful look before turning and walking back behind the counter.
+
+The next few hours would be a test of endurance, but now they weren't just an endless stretch of misery. They were a countdown.
+"Hey." I said, stopping her as she got behind the counter. "I could use some coffee and a hot muffin or two. Lots of butter." I flashed her a wicked grin, a acknowledgement of the people staring at us while trying to seem as if they were not, an understanding that for a little while we could be close, keep the sense of peace and silence around her a little bit longer, with a touch of 'damn the rumor mill' amusement. "If I don't get coffee in the morning, I fade out."
+She stopped, her hand hovering over the edge of the counter. His voice, low and easy, pulled her back. When she looked at him, he wasn't just worn and desperate; he was grinning. It was a wicked, knowing thing, a spark of defiance in the suffocating atmosphere of the café. It was a shared joke, a secret rebellion against the dozens of eyes pretending not to watch them.
+
+A real, unexpected laugh escaped her lips—a quiet, breathy sound that was more genuine than any she'd managed in days. It was the 'damn the rumor mill' amusement he was offering, and she accepted it gratefully.
+
+"Big day ahead of you, huh?" she played along, her own lips curving into a small, private smile. "Can't have you fading out on me."
+
+The simple, domestic request was a lifeline. It gave her a reason to stay close, to keep the fragile bubble of quiet around them for just a little while longer. She turned to the coffeemaker, her movements suddenly lighter, and poured a mug of the dark, steaming brew. She grabbed two of the still-warm blueberry muffins from the display case, put them on a plate, and grabbed a small ramekin of butter.
+
+She brought the plate and mug over to him, her movements deliberate and calm. As she set them down, she let her fingers brush against his on the counter, a brief, electric touch that was for him alone.
+
+"Here you go," she said softly. "Fuel up."
+I watched as Kim looked up, responding to someone behind me. pot of hot coffee in hand she went to fill someone's cup. Sipping off my own coffee I took a few bites off of my muffin, thoroughly enjoying the melted butter goodness and soft flavor of the pastry. The oddly enhanced, changed perception, I experienced we I was this close to Kim I discovered was a bit of a two edged sword. I could overhear bit of conversion around me. "...that's him, heard he slammed...hard...broke...in half.." I sighed. well, look at the bright side, I thought, fewer fights from random punks Then I thought of all the idiots that would want to be the one to bring down the Monster from Molly's. I sighed again. Slurping up some more coffee I picked up my second muffin. The bells over the door jingled again. perhaps it was my changed perceptions, but this time they seemed to resonate with a cheerier tone. Someone suddenly landed on the stool next to me with a soft, whump. I looked over at a woman who was looking at me with an intense expression as though I was a some strange new specimen. She was about Kim's age, dark hair cut shorter in almost a pageboy style, lively brown eyes and delicately applied make up that accentuated her features without being over done. I bore her scrutiny for a bit, then ventured, "Hello." Her face suddenly...exploded, was the only way I could think of it, into a bright sunny smile. "Hi! you have to be Feyd, I'm Laura. When I heard Kim had finally met someone I just had to meet him. You. Anyway, Kim and I go way back, and then I hear a handsome stranger just blew into town and lifted her right off her feet without so much as a breath of effort, and takes her on a date that's got the whole town chattering like a twitter feed gone viral, I just had to know what the real story was, and here I am." The bright, cheerful verbal onslaught left me nonplussed.
+Kim was pouring coffee for a fisherman, a small, genuine smile still playing on her lips from her exchange with Feyd. The low-grade Gauntlet was still there, a persistent hum at the edge of her awareness, but it was manageable. Muted. He was her anchor.
+
+Then the bells over the door jingled with a cheerier, more insistent tone. A sound Kim knew as well as her own heartbeat. Her head snapped up, and her smile vanished.
+
+Laura.
+
+She watched, her heart sinking, as Laura bopped across the room with her unerring, social-seeking missile lock. She landed on the stool next to Feyd with a soft whump, and Kim felt the fragile bubble of quiet around them pop like a soap bubble. The Gauntlet roared back to life, sharp and immediate, fueled by the frantic, curious energy of her best friend.
+
+She saw Laura's intense, speculative look, saw Feyd's calm, nonplussed reaction, and then she heard it. The verbal onslaught. "You have to be Feyd... lifted her right off her feet... got the whole town chattering..."
+
+Kim's hand tightened on the coffee pot. Every word Laura said, delivered with such cheerful, innocent force, was a direct hit. She wasn't being malicious; she was being Laura. Gathering information, connecting the dots, and in the process, airing every single one of Kim's private moments for the whole café to hear.
+
+She finished pouring the coffee, her movements stiff and automatic. She placed the pot back on the burner with a sharp clatter that was lost in the din of Laura's monologue. There was no escaping it now. The interrogation had begun, and her best friend was the prosecutor, the judge, and the entire jury.
+Kim stood frozen behind the counter, her hands clenched into fists at her sides. Laura's cheerful voice washed over the room, each word a tiny, sharp-edged stone thrown at the fragile peace she'd found with Feyd. "...lifted her right off her feet..." "...chattering like a twitter feed gone viral..."
+
+She saw Feyd sitting there, a statue of calm amidst the hurricane, his expression unreadable. He wasn't running. He wasn't getting angry. He was just... taking it. A strange, warm flicker of gratitude went through her, sharp and painful.
+
+Then Laura's verbal barrage hit its crescendo. "...here I am!" she finished, beaming, as if she'd just delivered the weather.
+
+The silence that followed was deafening. Every ear in the café was straining to hear his response. The Gauntlet was screaming now, a chaotic symphony of greedy anticipation.
+
+Kim knew she had to move. She had to break the spell, to stop this interrogation before it truly began. She took a deep breath, let it out, and forced her feet to carry her out from behind the counter. She walked over to their small, tense huddle, a forced, brittle smile plastered on her face.
+
+"Laura," she said, her voice tight. "You're going to give the man a heart attack."
+
+She reached past Laura, grabbing the coffeepot and a clean mug, her movements sharp and economical. As she poured a fresh cup for her friend, she leaned in slightly, her voice dropping to a low, urgent whisper meant only for Laura.
+
+"You're causing a scene."
+Internally, I was nearly overwhelmed by Laura's personality, she was the human version of a class four hurricane, an unstoppable force of bright, cheery good will. This is Kim's closest friend? I simply couldn't wrap my head around it. Kim stepped up in front of this human dynamo of happy obliviousness. "You're causing a scene." She nearly hissed at her, this impacted Laura only marginally. "Kim!" she stood up in between the stool and the counter, a contortion that until I saw it I would have said was not possible. She leaned over the counter and pulled Kim into a full upper body embrace, squeezing her tightly. Kim nearly dropped the coffee pot pulling it away before Laura could burn herself. "I am so happy for you!" she whumped back down onto her stool, beaming. Dropping her volume down to where I was sure nobody closer than, oh, say a quarter mile away, could possibly hear her she looked at me, still addressing Kim, "So fill me in. Other than being the best looking man I've seen on this side of the planet," she paused for an infinitesimal moment, looking me up and down. "If not the best dressed," her rapid fire focus shifted to me for an instant. "We can really spiffy you up." She commented before changing targets back to Kim, her delighted smile now aimed at her. "How did he drag you out of that shell of yours? Super charm? Is he funny? tell me everything." She paused just long enough for Kim to draw a breath, then her voice dipped into an actual whisper, and she leaned forward conspiratorially " I've heard the most amazing stories about the two of you. Charlene over at the book store says she saw him take on ten guys for you, laid them all out on the floor in less than five seconds." She made a face, "But I found out she wasn't anywhere near there." Her attention shifted back to me, "The rumors have you ten feet tall with laser beams shooting from your eyes." Back to Kim, "Well? Don't just stand there mute, tell me!"
+Kim stood there, the coffeepot feeling like a lead anchor in her hand. She watched the human hurricane that was Laura pull off a physics-defying contortion to hug her, felt the brief, suffocating squeeze, and then the blast of pure, unadulterated cheerfulness as she plopped back down.
+
+"Super charm? Is he funny? tell me everything."
+
+Kim’s jaw was tight enough to ache. She could feel a dozen pairs of eyes on them, feigning disinterest while hanging on every word. This was a private conversation being broadcast on the town's main speaker.
+
+Then Laura leaned in, her voice dropping to a conspiratorial whisper that was probably still audible at the post office. "I've heard the most amazing stories... Charlene over at the book store says he took on ten guys for you... laid them all out in less than five seconds."
+
+Kim's eyes flickered to Feyd for a half-second, a silent apology in her gaze. This was what he'd walked into. This was her life.
+
+Laura's attention ricocheted back to her. "Well? Don't just stand there mute, tell me!"
+
+The dam broke. The brittle mask of politeness shattered, replaced by a raw, weary frustration that had been building for two days. She wasn't just angry at Laura; she was angry at the whole town, at the Gauntlet, at the universe for putting her in this position.
+
+"Laura, for God's sake," she snapped, her voice low but sharp as glass. "There was no fight. No 'ten guys'. Pam thought he'd hurt me because I cried, and she called the cook and the pool guys over to protect me. That's all it was."
+
+She set the coffee pot down on the counter with a sharp, definitive clatter that made a few people jump. "He didn't do anything. He just stood there while everyone in the whole bar stared at me, waiting to see if I'd start a war or end one. I had to stand up and get between him and them to make it stop."
+
+Her voice dropped, thick with the memory of it. "It wasn't romantic, Laura. It was terrifying. And it was humiliating. So please... can you just stop?"
+The whole place had to have heard Kim. well, maybe that will work on the rumor mill. Laura's eyes got round as Kim snapped at her. "Oh wow." Her voice an actual whisper now. Quiet enough that even I had to lean in a little to hear. I could have cheered Kim. Instead I gave her a look of appreciation mixed with gratitude. Laura on the other hand, faced with the out of character reaction of Kim metaphorically slamming a steel door in her face pulled out a laser drill. Still whispering she looked at Kim with that astonished expression. "This is the real deal for you huh?" Her glance slid to me for a brief second then back to Kim. "I'll want to hear everything." Her unstoppable nature reasserted itself. "OK, I get it, not here." She did that physics defying upper body hug on Kim again, gave me a bright sunny smile and bopped up and out the door with the bells jingling a cheerful goodbye before I could even register her absence. I looked at Kim. "That is your best friend?" I shook my head in bewilderment. "How?"
+The silence that followed Laura's exit was profound. The cheerful jingle of the bells seemed to suck all the air out of the room, leaving behind a vacuum thick with unspoken questions. Kim stood frozen, her body still thrumming with the aftershock of her own outburst. She felt a dozen pairs of eyes on her, a new, more respectful curiosity, but it was still a weight.
+
+Then she looked at Feyd. He was shaking his head, a look of pure, unadulterated bewilderment on his face. "That is your best friend?" he asked, his voice a low murmur. "How?"
+
+The question was so simple, so genuine, that it broke the tension coiled in her chest. A strange, choked sound escaped her throat, and she realized it was the start of a laugh. She leaned forward, her elbows hitting the counter, and pressed her forehead into her hands. Her shoulders began to shake.
+
+It wasn't a sound of mirth. It was a release. The laugh was a ragged, desperate thing, full of exhaustion, frustration, and a profound, soul-deep relief. She laughed until her eyes watered, the sound muffled by her hands and the quiet hum of the café.
+
+When she finally straightened up, wiping at her eyes with the back of her hand, she let out a long, shuddering sigh. She looked at him, a real, tired smile touching her lips for the first time all day.
+
+"Because," she said, her voice hoarse. "When my world is ending, she's the one who shows up with a bottle of cheap wine and a shovel to help bury the body. She doesn't ask questions. She just... starts digging." She shook her head slowly. "She's just never learned that sometimes, the body isn't even dead yet."
+I was concerned when Kim planted her face in her hands, her laughter verged on near hysterical. It was soft and quiet, yet it showed she was right at her limits. She wound down and gave me a tired smile. "... sometimes the body isn't even dead yet." Yeah, I could see that with Laura. I drank down the last of my coffee and looked at Kim's so very weary face. "I think perhaps I need to go, this pressure on you is too much." I reached out and touched her hand, that electric sensation shivering through both of us. I hoped it gave Kim the energy and grounding it did me. "I'll meet you back here at one. We'll go to the beach and it'll just be us."
+The touch of his hand was a lifeline. The electric shiver that passed between them was a jolt of pure, clean energy, momentarily washing away the exhaustion and the psychic grime of the morning. For a single, perfect second, the Gauntlet was utterly silent, and all she could feel was him.
+
+"I'll meet you back here at one. We'll go to the beach and it'll just be us."
+
+His words were a promise. A sanctuary. But as he stood and his hand left hers, the world rushed back in. The silence he'd left behind was immediately filled by the low, insidious hum of the Gauntlet, returning with a vengeance now that its source was gone. The relief of the public pressure lifting was immediately eclipsed by the return of the private torture.
+
+She watched him walk to the door, his back straight, a solid, comforting presence. The bell jingled, and he was gone.
+
+The café seemed to breathe a collective sigh. The intense focus on her corner of the room dissipated, and the normal, low-level chatter of the town resumed. But it didn't matter. The walls were closing in again, the noise in her head a rising tide of static.
+
+She looked down at her hand, where his had been, the ghost of his touch already fading. One o'clock. It was an anchor in the storm, a point of light in the encroaching darkness. She had to survive until one. She took a deep, shaky breath and turned back to the counter, her shoulders slumping, the brief reprieve already a distant memory.
+I spent the time exploring around town, getting to know it better until it was nearly one. I made a stop at Gus's to pick up a few things, enduring his jibes and off color jokes at my expense, and was sitting on a bench outside of the Fog Horn when she came out. I stood up, and felt a genuine smile spread across my face. Even looking tired and worn down she was still the most gorgeous woman I'd ever met. She looked at me and some of that seemed to melt away from her. Our strange connection flowed into place, easing both of our natures into something stronger, quieter. "Are you still up for this?" I asked her, "You look like you've had a hell of day even after I left."
+The bell over the door jingled, signaling the end of her sentence. The last few hours had been a special kind of hell, a slow, grinding return to the familiar static of the Gauntlet. Every customer, every clatter of a dish, every whispered query had been a fresh assault. She felt raw, scraped clean, her nerves exposed and fluttering.
+
+She pushed the door open and stepped out into the afternoon air, and there he was.
+
+He was sitting on the bench, but stood as soon as he saw her. The sight of him, solid and real, was like taking a breath after being underwater. The static in her head didn't just fade; it ceased. A profound, immediate silence washed over her, and the tension in her shoulders dissolved. Some of the exhaustion must have shown on her face, because his expression softened.
+
+"Are you still up for this?" he asked, his voice a low, gentle rumble. "You look like you've had a hell of a day even after I left."
+
+A small, tired but genuine smile touched her lips. "You have no idea," she said, her voice quiet. "But I'm more up for this than I am for anything else."
+the afternoon sun warm on their skin. The familiar walk toward the coast felt different with him beside her, a silent, shared space in the middle of the town. She didn't head for her car, but instead guided him down a side street he hadn't seen before, toward the edge of town.
+
+"The beach is close," she said quietly, her voice already sounding stronger. "It's just a short walk."
+
+They fell into an easy stride, the noise of the town's center fading behind them. With every step, the Gauntlet's lingering presence receded, replaced by the growing sound of the wind and the distant, rhythmic crash of waves. The weight on her shoulders felt lighter, not just from his presence, but from the promise of the destination ahead.
+We reached the end of the street and followed a rough narrow trail for awhile, before we rounded a hill full of tall old pines. The smell of pine, the tang of salt air and the feel of ocean mist on my skin combined into a sensory feel of peaceful solitude. we were at the top where the trail descended toward her beach. It was a stunning view, the sun, as if to make up for our day, warmed us and lit the view. Waves crashed into and over huge rocks out beyond the curved beach, the thrum of it vibrating the air with gentle power. I shifted my shopping bag to my other hand and took Kim's to steady her on the path as we made our way down. "it's magnificent." I said with a quick look at her as I led the way, my lower position making our heights nearly even. "All this right on the edge of town."
+His hand in hers was a different kind of anchor now. Not a desperate lifeline in a storm, but a simple, steady warmth that grounded her in the moment. The rough trail demanded her attention, the descent a careful negotiation of loose dirt and exposed roots.
+
+"It's magnificent," he said, his voice full of awe as he looked at her. "All this right on the edge of town."
+
+She smiled, a genuine, easy smile that reached her eyes. "That's why it's my place," she said, her voice soft but clear. "No one really comes down here. It's too wild for the families, and too quiet for the kids." She squeezed his hand gently as they navigated a tricky patch of slick stone. "It's just... forgotten."
+
+They reached the bottom of the path, their feet sinking slightly into the dark, coarse sand of Blackstone Beach. The air was alive with the rhythmic, powerful thrum of the surf crashing against the Sentinel Rocks. The vastness of it opened up before them, a dramatic, windswept stage of stone and sea, completely and utterly private.
+
+She let go of his hand, not out of distance, but to simply be. She took a deep breath, filling her lungs with the clean, sharp air, and for the first time in what felt like an eternity, there was no noise in her head. There was only the wind, the waves, and the profound, soul-deep quiet of being exactly where she was supposed to be.
+I stepped a short distance from her and just took it in. The waves pounding in their eternal cycle of advance and retreat, high sloping green and gold dotted cliff broken by soft green grass covered ledges, an amphitheater built by nature to display it's best work. "We could go up there and sit," I pointed to the lower of the ledges, it's position was perfect to overlook the beach and sea. I looked over at Kim, she was standing in the sunlight, eyes closed and a faint satisfied smile curving her lips. I was almost sorry I'd spoken and she slowly opened her eyes and followed my pointing hand to the ledge. The beauty of her pose had stirred my poets soul.
+His voice was a soft intrusion, not unwelcome, but pulling her gently back from the edge of blissful oblivion. She slowly opened her eyes, the world coming back into focus. He was pointing toward a grassy ledge partway up the cliff face, a natural balcony overlooking their private theater.
+
+Her gaze followed his, then returned to him. She saw the look on his face, the quiet appreciation in his eyes as he watched her. It wasn't the predatory focus of the Animal, or the calculating assessment of a stranger. It was something else, something open and unguarded. It made her feel seen in a way that was both terrifying and exhilarating.
+
+A faint blush colored her cheeks, and she gave a small, shy nod. "Okay," she agreed, her voice a little breathless. "Lead the way."
+
+The climb was short, a scramble up a well-worn goat path embedded in the soft earth of the cliff. The ledge was even better than it looked from below, a thick carpet of soft grass and wildflowers overlooking the entire expanse of the beach and the endless, churning sea.
+
+She settled onto the grass, tucking her legs beneath her, the sun warming her back. The wind whipped a few strands of hair across her face, and she tucked them behind her ear. Here, with him, the silence wasn't empty. It was full. It was a shared space, a peace they had built together, brick by painful brick. She looked out at the waves, then over at him, her heart feeling full for the first time in as long as she could remember.
