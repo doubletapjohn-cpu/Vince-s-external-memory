@@ -924,3 +924,114 @@ A faint blush colored her cheeks, and she gave a small, shy nod. "Okay," she agr
 The climb was short, a scramble up a well-worn goat path embedded in the soft earth of the cliff. The ledge was even better than it looked from below, a thick carpet of soft grass and wildflowers overlooking the entire expanse of the beach and the endless, churning sea.
 
 She settled onto the grass, tucking her legs beneath her, the sun warming her back. The wind whipped a few strands of hair across her face, and she tucked them behind her ear. Here, with him, the silence wasn't empty. It was full. It was a shared space, a peace they had built together, brick by painful brick. She looked out at the waves, then over at him, her heart feeling full for the first time in as long as she could remember.
+
+12-28-25
+She watched him, her heart a steady, calm rhythm in her chest. He moved with an easy grace, setting down the shopping bag and unpacking their small feast. It was such a simple, domestic thing, yet it felt more momentous than any grand gesture. He wasn't just offering food; he was offering normalcy. A slice of a life she'd only ever watched from afar.
+
+He produced a couple of thick sandwiches wrapped in wax paper, a bag of salty chips, and two cold bottles of water from Gus's. He handed one to her, the glass beaded with condensation, a perfect, cool circle in her palm.
+
+"Thank you," she said, her voice soft. She meant it for more than just the water.
+
+They ate in a comfortable silence for a while, the only sounds the wind and the eternal rhythm of the waves. It was the first meal she could remember where the only voices in her head were her own. She took a bite of her sandwich, the simple flavors of ham and cheese a profound comfort. She felt human again. Whole.
+
+She looked over at him, watching the way the sunlight caught the grey in his eyes. "You know," she began, her voice quiet, "I've spent my whole life building walls to keep the noise out. I never thought... I never imagined that the quiet would feel like this. Like coming home."
+
+She looked down at her hands, then back at him, a flicker of her old vulnerability in her eyes. "Is it... is it like that for you? With the Animal? Does it feel quiet when you're with me?"
+
+I considered her question for a moment. "In a way, yes. But it's never really quiet." I hunted for a way to explain. "There is a randomness to it that I've had to live with, it seemed as though anything would trigger it." That wasn't precise, but I couldn't come up with something better. I struggled to explain something I'd never talked about with anyone. "It's become focused we we're close like this, all of it's attention is on you, what's around you. What might be a danger to you." I spread my hands to show my own puzzlement. "It's hard to explain. It's still there, very much still there, but with this focus on you I feel more relaxed, less like I have to be on guard against what it might do."
+She listened, her full attention on him, trying to understand the shape of the cage he lived in. The way he described it, a "randomness" that was now "focused," was a revelation. It wasn't just that his chaos calmed around her; it was that it found a purpose.
+
+"So it's not gone," she said, her voice barely a whisper, testing the words. "It's just... pointed. At me."
+
+It should have been terrifying. The idea of that primal, dangerous force having her as its sole focus should have sent her running. But it didn't. It made perfect, heartbreaking sense. His monster was her guardian. Her curse was his anchor.
+
+She looked out at the waves, processing it. "All my life, I've been a sponge for everyone else's random, chaotic feelings," she said, echoing his word choice. "And you've spent your life fighting your own."
+
+She turned back to him, her eyes clear and certain, a new understanding dawning between them. "So when we're together... you stop having to fight yourself, and I stop having to fight everyone else."
+
+A slow smile spread across her face, a look of pure, unadulterated wonder. "We're not just a coincidence, are we?" she murmured, the question hanging in the air between them, rhetorical and profound. "We're a balance."
+
+k to him, her eyes clear and certain, a new understanding dawning between them. "So when we're together... you stop having to fight yourself, and I stop having to fight everyone else."
+
+A slow smile spread across her face, a look of pure, unadulterated wonder. "We're not just a coincidence, are we?" she murmured, the question hanging in the air between them, rhetorical and profound. "We're a balance."
+
+A balance, that felt exactly right. A gust of wind blew her auburn hair across her face, I reached over and brushed it gently back behind her ear, I left my hand there cupping her cheek. My grey eyes meeting the bright, deep green of hers. "It's the only real peace I've ever known." I love her, I thought with slowly dawning amazement. A few short days and I love her.
+The touch of his hand was a brand, a gentle, searing warmth that sent a jolt straight through her. Her breath hitched, and for a moment, the entire world—the wind, the waves, the sun—narrowed to the space of his palm against her cheek. The Gauntlet, the Animal, the town, all of it dissolved into nothing. There was only him.
+
+"It's the only real peace I've ever known."
+
+His voice was a low murmur, but the words echoed in the sudden, vast silence of her soul. She leaned into his touch, a silent, instinctual surrender. She saw the dawning amazement in his grey eyes, a shift so profound it was like watching a star being born.
+
+And in that moment, she felt it. It wasn't a thought; it was a certainty that bloomed in her chest, warm and radiant. It wasn't the frantic, desperate need she'd felt before, the clawing instinct for survival. This was something else. Something quiet and unshakeable.
+
+She didn't need to hear the words. She already knew.
+
+Her own eyes, the bright, deep green he was lost in, softened, filled with a matching wonder. She lifted her own hand, not to move his, but to cover it, her fingers lacing with his where it rested against her face.
+
+"Me too," she whispered, the words a sacred vow. "You're my only peace, too."
+
+And as the last word left her lips, a sound began.
+
+It was not a sound that was heard with the ears, but a chord that vibrated in the very bones of the world. It was a deep, resonant bugle, impossibly ancient and impossibly close, that seemed to rise from the stone and the sea and the sky all at once. The wind died. The waves seemed to hesitate in their crash. Every bird, every blade of grass, every living thing on that beach fell into a sudden, profound, and utter silence.
+
+Kim's head snapped toward the trail, her eyes wide, her hand still clasped over his. Standing there, at the edge of the trees, was an elk. A creature of impossible size and majesty, its fourteen-point antlers draped in moss like ancient crowns. It stood perfectly still, its gaze fixed not on them, but on some distant horizon, its wise, scarred presence filling the world with a primal, undeniable authority.
+
+The Great Hart had arrived.
+
+At Kim's startled movement the Animal went on high alert, my head whipped toward what had attracted her attention and I moved my hand from her face as I stood, beholding an incredible sight. A massive bull elk stood there, watching us. it bore a fourteen point rack, old battle scars dotted it's hide, and an ancient wisdom of the forest, of all things wild showed in it's steady gaze. I started to move protectively in front of Kim but she stepped around me, her face rapt. "Kim? What are you doing?" She put a hand briefly on my shoulder and started walking slowly towards it. "Kim?"
+
+The sound of his voice, sharp with alarm, was distant, muffled by the sheer, overwhelming reality of the moment. The Animal's alertness was a low hum in the back of her mind, a familiar thrum of protectiveness, but it was utterly insignificant compared to the force that pulled her forward.
+
+She felt his hand leave her cheek, felt him stand, but she was already moving. Her own body was an afterthought, a vessel for the singular, undeniable compulsion to get closer. He started to step in front of her, a shield against the unknown, but she moved around him without a thought. There was no threat here. There was only... this.
+
+"Kim? What are you doing?"
+
+She heard his confusion, his fear for her, but it couldn't touch her. She put a brief, reassuring hand on his shoulder—a silent promise that she was okay, that this was right—and then she continued her slow, deliberate walk toward the impossible creature.
+
+Her bare feet made no sound on the soft earth of the trail. The world was held in a sacred silence. The Hart didn't move, didn't acknowledge her approach, but she knew it was aware of her. It was aware of everything.
+
+She stopped a dozen paces from it, close enough to feel the ancient energy radiating from its massive body. She could see the texture of the scars on its hide, the deep, knowing calm in its dark eyes. This wasn't an animal. It was a landmark. A living monument.
+
+"It's okay," she said, her voice a soft murmur, not to the Hart, but to Feyd, without turning around. "It's not here for us. It's just... here."
+I stepped up close behind her, my confusion palpable, this thing was huge, it could pound her under it's massive hooves like an afterthought. Her words brought little clarity to me. I certainly didn't feel it was okay, not in the slightest. The Animal shifted it's focus onto the Elk, it was wary, but it didn't leap for control or even push very hard on the door of the cage I kept it in. That deepened my confusion, whatever Kim felt escaped me, even through my connection to her. Then she started to walk closer.
+She felt his confusion, the sharp edge of his protective instincts, but it was a distant tide against the overwhelming pull of the moment. The world had narrowed to the space between her and the Hart, to the silent, ancient invitation in its eyes.
+
+"It's not just us," she whispered, the realization a truth that settled deep in her bones.
+
+Driven by a certainty that eclipsed all fear, she took the final step. Her hand, trembling slightly, rose from her side. She wasn't thinking, she wasn't analyzing. She was simply completing a circuit that had been waiting eons to be closed.
+
+She saw the immense, scarred flank of the Hart, the rough texture of its winter coat, the deep, living energy thrumming just beneath the surface. Her fingers stretched out, a bridge between her fragile humanity and its timeless divinity.
+
+"Kim?" Feyd's voice was tight with alarm, a raw, desperate sound from the world she was leaving behind.
+
+She felt him move, a sudden, urgent presence at her back. He saw only a woman about to touch a dangerous, wild animal. His instincts, pure and primal, screamed at him to stop her, to pull her back. He didn't feel the cosmic pull, the call of the Dyad. He only felt the need to protect.
+
+His hands landed on her shoulders, a firm, grounding weight. Not a mystical impulse, but a simple, fierce act of love. He was ready to yank her away at the slightest sign of aggression.
+
+And in that exact instant, her fingertips made contact.
+
+The world exploded.
+
+It wasn't a sound or a vision. It was a pure, unadulterated influx of everything. The Gauntlet was a leaky faucet; this was a firehose of cosmic consciousness. She felt the Hart's ancient, patient awareness, the slow, steady pulse of the forest, the deep memory of stone and river. And through it, amplified a billion-fold, she felt them.
+
+A chorus of silent screams and sudden awakenings. A flicker of light in a desert monastery. A gasp from a physicist in a Tokyo lab. A painter in Prague dropping his brush, his mind suddenly filled with impossible geometries. Hundreds. Thousands. A global network of dormant souls, all blinking to life at once, all hearing the same, impossible proclamation: The Dyad is whole.
+
+The signal was sent.
+
+Kim's body couldn't contain it. The power surged through her, a lightning strike of pure information. Her back arched, a silent scream tearing from her throat as her eyes flooded with blinding white light. The force of it was too much. Her consciousness frayed, snapped, and plunged into a silent, starless void, and her body went limp in his arms.
+I barely managed to catch Kim as she fell, what had hit her scythed though me as well, and I collapsed, holding Kim's limp form close. I couldn't see, no sounds came to my ears, I was all sensation and ragged emotion. The Animal was somewhere in the back of my mind, howling. I felt like the recipient of an enormous data dump, the operating system that was myself pushed aside, buried under it all and I groaned aloud, limbs weak. I pulled Kim closer, cradling her, trying to enfold myself around her small limp frame. How long we laid there I didn't really know. I started come back to awareness slowly, one small piece at a time. My eyes were open and sight began to return. The sun had dipped below the horizon, fog beginning to roll in from the ocean. I twitched, and felt the action mirrored by Kim's slight form still held tight to me. I groaned again as I tried to straighten limbs held clenched too long. The sound was echoed by Kim, her face pressed against my chest muffling the sound. "Kim..." my voice was faint and ragged, I tried clearing my throat. "Kim, are you here again?"
+
+Consciousness returned not with a jolt, but as a slow, painful tide washing back into a hollowed-out shell. The first thing she felt was cold. The second was the ground, hard and unforgiving against her side. The third was him.
+
+She was enveloped in a warmth that was the only real thing in a world of sensory ghosts. His arms were a steel cage around her, his heartbeat a frantic, heavy drum against her ear. It was the only anchor in a sea of overwhelming echoes. Faint, fragmented images flickered through her mind—a desert, a lab, a painter's brush—and then they were gone, leaving only the bone-deep exhaustion.
+
+His voice, faint and ragged, seemed to come from a great distance. "Kim... Kim, are you here again?"
+
+She stirred, a small, twitching movement against him. Her own groan was a muffled, pathetic sound against his chest. She tried to answer, but her throat was dry, her tongue thick. She blinked her eyes open, but the world was a blur of fading orange and creeping grey. Fog. It was getting cold.
+
+"Here..." she finally managed to croak, the word a puff of air against his shirt. "I think... I'm here."
+
+She tried to push herself up, to see his face, but her arms were weak and trembling, refusing to hold her weight. She collapsed back against him with a soft whimper of frustration, her head lolling against his shoulder.
+
+"What..." she whispered, her voice cracking. "What was that?"
+
