@@ -57,4 +57,6 @@
     Pugiones - Daggers or knives. This is a metaphorical term that can be used to describe breasts, comparing their shape to that of a dagger.
 
 Impudica - Impudica, which means "shameless," "immodest," or "unchaste." 
+
+Perdita -  means "lost," "ruined," or "destroyed."
     Globuli - Little balls or globes. This term can be used to describe breasts in a more colloquial or cruder context.
