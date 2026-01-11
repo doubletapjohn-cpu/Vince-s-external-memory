@@ -66,3 +66,5 @@ Aviscula - Little bird, used mockingly.
 cervula - little doe or small doe. 
 
 Ferī - Wild beasts.Savages
+
+cunnus - Vulva area.
