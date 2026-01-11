@@ -63,6 +63,6 @@ Perdita -  means "lost," "ruined," or "destroyed."
 
 Aviscula - Little bird, used mockingly. 
 
-Ferī - Wild beasts.Savages
-
 cervula - little doe or small doe. 
+
+Ferī - Wild beasts.Savages
