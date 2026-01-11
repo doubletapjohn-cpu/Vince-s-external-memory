@@ -62,6 +62,7 @@ Perdita -  means "lost," "ruined," or "destroyed."
     Globuli - Little balls or globes. This term can be used to describe breasts in a more colloquial or cruder context.
 
 Aviscula - Little bird, used mockingly. 
+
 Ferī - Wild beasts.Savages
 
 cervula - little doe or small doe. 
